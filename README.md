@@ -1,1 +1,1 @@
-# learn-solopreneurship
+# learn-leadership
